@@ -1,0 +1,1 @@
+# ict-ai-seminar1-2019
